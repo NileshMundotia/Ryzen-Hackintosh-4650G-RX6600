@@ -1,0 +1,1 @@
+# Ryzen-Hackintosh-4650G-RX6600
